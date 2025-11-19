@@ -16,7 +16,7 @@ Maybe you have found that my English isn't well😢😢, please forgve me, thank
    * 🦴Cheerdoge(旺柴)🦴
     He is a **Shiba Inu**🐶 which likes playing game. He is created by one of my best friends🥰. When I perfected his character design, I basically modeled it after my self. Here is he!
    * ⭐Cynosure(辰戌)⭐
-    This is **my first original character** which was created all by myself. I wish he is **the symbol of the meteor✨ and wishes**, but he is a dog🐶, too.(🥰\I like dog! Please support dog!) So I use the elements of stars to creat it. His original name is Stelle, but I change it to Cynosure.They all have meaning of stars.
+    This is **my first original character** which was created all by myself. I wish he is **the symbol of the meteor✨ and wishes**, but he is a dog🐶, too.(🥰I like dog! Please support dog!) So I use the elements of stars to creat it. His original name is Stelle, but I change it to Cynosure.They all have meaning of stars.
    
    Please go to my introduction's repository to see these two cute little guys🥰
    
